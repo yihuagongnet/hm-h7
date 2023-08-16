@@ -13,6 +13,8 @@ https://hanman.cfd
 
 **https://hanmanzhan.com**  （2023.8.16更新）
 
+https://hanman.gay （2023.8.16更新）
+
 https://hanman.buzz
 
 https://hanman.fun
