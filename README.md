@@ -11,6 +11,8 @@ https://hanman.cfd
 ```
 # hm-h7 hanman韩漫大全最新网址：
 
+**https://hanmanzhan.com**  （2023.8.16更新）
+
 https://hanman.buzz
 
 https://hanman.fun
